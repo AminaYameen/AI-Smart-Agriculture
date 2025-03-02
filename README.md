@@ -167,7 +167,7 @@ For any questions or feedback, feel free to reach out to our team:
 
 - Nyambura Gachahi: nyambura@example.com
 
-- Amina Arooj: amina@example.com
+- Amina Arooj: aminaarooj1999@gmail.com
 
 - Khuram Hanif: khuram@example.com
   
